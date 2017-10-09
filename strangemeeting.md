@@ -1,15 +1,19 @@
-# Strange Meeting  
-  
+# Strange Meeting
+
 It seemed that out of the battle I escaped  
 Down some profound dull tunnel, long since scooped  
-Through granites which Titanic wars had groined.  
+Through granites which Titanic wars had groined.
+
+  
 Yet also there encumbered sleepers groaned,  
 Too fast in thought or death to be bestirred.  
 Then, as I probed them, one sprang up, and stared  
 With piteous recognition in fixed eyes,  
 Lifting distressful hands as if to bless.  
 And by his smile, I knew that sullen hall;  
-By his dead smile I knew we stood in Hell.  
+By his dead smile I knew we stood in Hell.
+
+  
 With a thousand fears that vision’s face was grained;  
 Yet no blood reached there from the upper ground,  
 And no guns thumped, or down the flues made moan.  
@@ -38,9 +42,12 @@ I would go up and wash them from sweet wells,
 Even with truths that lie too deep for taint.  
 I would have poured my spirit without stint  
 But not through wounds; not on the cess of war.  
-Foreheads of men have bled where no wounds were.  
+Foreheads of men have bled where no wounds were.
+
+  
 I am the enemy you killed, my friend.  
 I knew you in this dark; for so you frowned  
 Yesterday through me as you jabbed and killed.  
 I parried; but my hands were loath and cold.  
-Let us sleep now . . .”  
+Let us sleep now . . .”
+
