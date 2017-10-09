@@ -12,14 +12,11 @@ It seemed they pushed themselves to be as plugs
 Of ditches, where they writhed and shrivelled, killed.
 
 By them had slimy paths been trailed and scraped  
-Round myriad warts that might be little hills.
-
+Round myriad warts that might be little hills.  
 From gloom’s last dregs these long-strung creatures crept,  
-And vanished out of dawn down hidden holes.
-
+And vanished out of dawn down hidden holes.  
 \(And smell came up from those foul openings  
-As out of mouths, or deep wounds deepening.\)
-
+As out of mouths, or deep wounds deepening.\)  
 On dithering feet upgathered, more and more,  
 Brown strings towards strings of gray, with bristling spines,  
 All migrants from green fields, intent on mire.
@@ -30,8 +27,7 @@ I saw their bitten backs curve, loop, and straighten,
 I watched those agonies curl, lift, and flatten.
 
 Whereat, in terror what that sight might mean,  
-I reeled and shivered earthward like a feather.
-
+I reeled and shivered earthward like a feather.  
 And Death fell with me, like a deepening moan.  
 And He, picking a manner of worm, which half had hid  
 Its bruises in the earth, but crawled no further,  
