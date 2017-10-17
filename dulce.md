@@ -29,6 +29,6 @@ Obscene as cancer, bitter as the cud
 Of vile, incurable sores on innocent tongues,—  
 My friend, you would not tell with such high zest  
 To children ardent for some desperate glory,  
-The old Lie: Dulce et decorum est  
-Pro patria mori.
+The old Lie: _Dulce et decorum est  
+Pro patria mori_.
 
