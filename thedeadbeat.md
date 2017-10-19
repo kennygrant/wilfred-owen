@@ -21,5 +21,5 @@ We sent him down at last, out of the way.
 Unwounded; – stout lad, too, before that strafe.  
 Malingering?  Stretcher-bearers winked, “Not half!”  
   
-Next day I heard the Doc.’s well-whiskied laugh:  
+Next day I heard the Doc’s well-whiskied laugh:  
 “That scum you sent last night soon died.  Hooray!” 
