@@ -4,3 +4,8 @@
     border-bottom: 1px solid #eee;
     color: #aaa;
 }
+
+a,
+blockquote {
+    color: #000!important;
+}
